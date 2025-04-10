@@ -1,4 +1,6 @@
-THIS THING IS  WIP SO... I WILL TAKE MY TIME TO FINISH IT
+THIS THING IS WIP SO... I WILL TAKE MY TIME TO FINISH IT
+
+ITS STILL IN WIP xD
 
 - 👋 Hi, I’m @DiegotsCodeHub
 - 👀 I’m interested in ...
